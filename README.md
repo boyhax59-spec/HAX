@@ -1,7 +1,7 @@
-# QUEEN ROSE
+# ASSASSIN V1
 Only for educational purposes only 🤖
 
-# A Powerful bot Developed by Saint Kuda 😘
+# A Powerful bot Developed by Saint 𓅃_𝑼𝑵𝑺𝑬𝑬𝑵_𓅃😘
 <img src="https://i.imgur.com/qG0i8eX.jpeg file"/>
 
 Don't Forget to STAR 🌟 AND FORK MY REPO
